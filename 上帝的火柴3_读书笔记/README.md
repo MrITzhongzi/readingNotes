@@ -9,10 +9,10 @@
 
 
 ##### 【精要、摘录与速读】  
-- ![avatar](/images/01_1.jpg)
-- ![avatar](/images/01_2.jpg)
-- ![avatar](/images/01_3.jpg)
-- ![avatar](/images/01_4.jpg)
+- ![avatar](/上帝的火柴3_读书笔记/images/01_1.jpg)
+- ![avatar](/上帝的火柴3_读书笔记/images/01_2.jpg)
+- ![avatar](/上帝的火柴3_读书笔记/images/01_3.jpg)
+- ![avatar](/上帝的火柴3_读书笔记/images/01_4.jpg)
 
 ##### 【故事概览分析】  
 
